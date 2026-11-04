@@ -7,7 +7,7 @@ BD-II + DID⠀﹋⠀the doomed potential\
 c+h welcome , w2i always. offtab a lot\
 ac - beefsyte
 
-[carrd.](https://truehyperlaser.carrd.co) [wip.](https://github.com/truehyperlaser) [wip.](https://github.com/truehyperlaser)
+[wip.](https://github.com/truesubspace) [wip.](https://github.com/truesubspace) [wip.](https://github.com/truesubspace)
 
 <img src="https://komarev.com/ghpvc/?username=truehyperlaser&label=my+prey.&color=df5286&style=plastic"> </p>
  
