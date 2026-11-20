@@ -1,11 +1,11 @@
 <div align="center">
 
-<img src="https://64.media.tumblr.com/d6d29cedd36a424a76abf0f89243cb94/0c2f144b4d8caea7-a9/s1280x1920/48f5c9bc1f3f463dcfa4acaadf67eee3532b90ad.pnj" width="300">
+<img src="https://file.garden/ZspxsFhuznUkgAQY/AAAA/Untitled270_20261110232259.png" width="300">
 
 truesubspace or subspace⠀━⠀19 .⠀it〳he\
-BD-II + DID⠀﹋⠀the doomed potential\
+BD-II + DID⠀﹋⠀poisoning him since 06.13\
 c+h welcome , w2i always. offtab a lot\
-ac - beefsyte
+ac - mortysmouse
 
 [CARRD](https://truesubspace.carrd.co) [ATABOOK](https://truesubspace.atabook.org) [PRNS.CC](https://pronouns.cc/@truesubspace) [GUNS.LOL](https://guns.lol/truesubspace)
 
