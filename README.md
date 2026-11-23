@@ -7,7 +7,7 @@ BD-II + DID⠀﹋⠀poisoning him since 06.13\
 c+h welcome , w2i always. offtab a lot\
 ac - mortysmouse
 
-[CARRD](https://truesubspace.carrd.co) [ATABOOK](https://truesubspace.atabook.org) [PRNS.CC](https://pronouns.cc/@truesubspace) [GUNS.LOL](https://guns.lol/truesubspace)
+[ATABOOK](https://truesubspace.atabook.org) [PRNS.CC](https://pronouns.cc/@truesubspace) [GUNS.LOL](https://guns.lol/truesubspace)
 
 <img src="https://komarev.com/ghpvc/?username=truehyperlaser&label=BIOGRAFTS.&color=df5286&style=plastic"> </p>
  
